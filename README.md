@@ -1,1 +1,1 @@
-# galaxyboyz11.github.io
+# galaxyboy.github.io
